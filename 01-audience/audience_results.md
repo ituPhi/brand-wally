@@ -23,5 +23,3 @@ File: 6.png
 Personas que ganan en cripto y quieren convertirlo en dinero útil al instante. Buscan una forma directa y segura de convertir sus ingresos en cripto a dólares y usarlos desde una tarjeta confiable, sin depender de terceros poco confiables.
 
 File: 7.png
-
-
